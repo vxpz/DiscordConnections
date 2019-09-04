@@ -21,3 +21,6 @@ Fiddler https://www.telerik.com/download/fiddler/fiddler4
 Postman: postman.co
 -----------------------------------------------------------------
 P's i suck at tuts so forgive me lol ;)
+Discord:ᴠxᴘ
+#0652
+twitter:https://twitter.com/simswapz
